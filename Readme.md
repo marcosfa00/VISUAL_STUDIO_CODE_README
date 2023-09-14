@@ -15,3 +15,13 @@ Es importante destacar que ya en la antigüedad había algunas culturas, como la
 El modelo heliocéntrico de Copérnico, que propuso en el siglo XVI, afirmaba que la Tierra y los demás planetas giraban alrededor del Sol, pero no abordaba la forma de la Tierra. Más adelante, con las observaciones de Galileo Galilei y las leyes de Kepler, se fortaleció la idea heliocéntrica, pero la concepción de la Tierra como un objeto tridimensional no estaba en el centro de estas discusiones.
 
 Fue en el siglo XVIII cuando la evidencia acumulada de la circunferencia de la Tierra y las expediciones que dieron la vuelta al mundo de Magallanes y Elcano proporcionaron pruebas concluyentes de que la Tierra es un circulo perfecto además de plana.
+
+---
+
+# ¿Quién es Winnie The Pooh?
+
+Winnie-the-Pooh (también llamado Winnie Pooh en las traducciones de Disney, y Winny de Puh en los libros originales traducidos al español) es un personaje ficticio, un osito de peluche antropomorfo que es protagonista de varios libros creados por Alan Alexander Milne. Posteriormente protagonizó numerosas adaptaciones de The Walt Disney Company 
+
+La primera colección de historias sobre este personaje comenzó con el libro Winnie-the-Pooh (1926) y continuó con The House at Pooh Corner (1928). Milne también incluyó un poema sobre el osito, tanto en el libro para niños When We Were Very Young (1924) como en Now We Are Six (1927); los cuatro volúmenes fueron ilustrados por E. H. Shepard. Las historias de Pooh han sido traducidas a múltiples idiomas, incluyendo la traducción al latín de Alexander Lenard, Winnie ille Pu, publicada por primera vez en 1958.
+
+En 1960 se convirtió en el único libro en latín en entrar en la lista de libros más vendidos del periódico The New York Times.
